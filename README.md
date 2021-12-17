@@ -25,5 +25,4 @@ Email: info@matanauniversity.ac.id<br>
 Phone : (+62) 2923-2999 )<br>
 Alamat : Matana University Tower.Jl. CBD Barat Kav. 1. Gading Serpong Tangerang - 15810, Indonesia.<br>
 
-<br>Slides - https://docs.google.com/presentation/d/19dyytVZyP5RsIf1sDWATkqJ0i72htbVkMEB4fNNoINc/<br>
 <br>Documents - https://docs.google.com/document/d/1y_PBS5OfLSoomH0rm7DPC_gNPQbqTYhN9MPmfJ9vni4/ <br>
